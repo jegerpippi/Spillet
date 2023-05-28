@@ -1,2 +1,2 @@
 # Spillet
-kan det kalles. Livet kan det også kalles. 
+kan det kalles. Men jeg ser på det som et liv.
