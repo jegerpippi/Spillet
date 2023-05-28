@@ -1,2 +1,2 @@
 # Spillet
-... slik mange ser det er et liv.
+... slik jeg ser det er et liv.
