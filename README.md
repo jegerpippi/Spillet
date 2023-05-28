@@ -1,2 +1,2 @@
-Spillet
-... kan det kalles. Men jeg ser på det som et liv.
+# Spillet
+... slik mange ser det er et liv.
